@@ -1,3 +1,0 @@
-# Batman
-
-HISTORIA DE BATMAN
